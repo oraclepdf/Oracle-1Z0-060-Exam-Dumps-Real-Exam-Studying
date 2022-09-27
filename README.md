@@ -1,6 +1,3 @@
-<div style="position: absolute; z-index: 0; min-height: 100%; min-width: 100%; display: block; top: 50%;">
-<p style="color: rgba(121, 117, 117, 0.5); font-size: 120px; transform: rotate(300deg); -webkit-transform: rotate(300deg);">ORACLE PDF</p>
-</div>
 <div>
 <h1>Oracle 1Z0-060 Exam Dumps Gather Your Huge Triumph</h1>
 <p>Just like absolutely everyone knows the fact that passing the Oracle 1Z0-060 exam questions can assist you in acing the&nbsp;OPN Certified Specialist&nbsp;domain together with the support of Oracle 1Z0-060 exam dumps. Couple of know the difficulty of passing the Upgrade to Oracle Database 12c exam questions. In reality passing the Oracle 1Z0-060 exam questions demand your dedication plus a valid Oracle 1Z0-060 pdf dumps. The most recent&nbsp;<a href="https://www.oraclepdf.com/Oracle-1Z0-060-pdf-dumps.html">1Z0-060 dumps pdf presented by the OraclePDF</a>&nbsp;is your fantastic choice for the preparation on the Upgrade to Oracle Database 12c new questions. This Oracle 1Z0 060 questions pdf supplied by the OraclePDF has been verified by the Oracle authorities. Genuine Oracle 1Z0-060 braindumps have already been created in such a way that they provide you with the perfect expiation to every single question within the true 1Z0 060 exam.</p>
